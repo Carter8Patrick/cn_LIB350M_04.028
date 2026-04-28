@@ -11,7 +11,7 @@ colin ate the sneakers.
 * Yuan - 
    *created blue-and-white porcelain + passports*
 * Zhou (Fall & Spring) - 
-   *Confucius established Chinas primary philosophy for centuries*
+   *Confucius orates Chinas primary philosophy for centuries to come, documented by his students*
 * Ming - 
    *paintings and philosophy blossom*
 
