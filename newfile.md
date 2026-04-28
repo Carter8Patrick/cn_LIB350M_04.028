@@ -9,9 +9,9 @@ colin ate the sneakers.
 * Song - 
    *reclaimed blue-and-white porcelain, incorporated into national identity + arts flourished*
 * Yuan - 
-   *created blue-and-white porcelain*
+   *created blue-and-white porcelain + passports*
 * Zhou (Fall & Spring) - 
-   *my goat Confucius established himself during this dynasty*
+   *Confucius established Chinas primary philosophy for centuries*
 * Ming - 
    *paintings and philosophy blossom*
 
